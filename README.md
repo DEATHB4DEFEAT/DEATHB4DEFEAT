@@ -1,11 +1,5 @@
 # About me
 > Hello! I am DEATHB4DEFEAT#4404, but I prefer being called Death.
-> 
-> Some things I like to do are:
-> Program,
-> Play games,
-> Watch youtube for hours at a time,
-> Stare at Discord.
 > ---
 
 ## Things
